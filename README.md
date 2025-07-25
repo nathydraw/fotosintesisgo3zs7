@@ -1,1 +1,0 @@
-# fotosintesisgo3zs7
